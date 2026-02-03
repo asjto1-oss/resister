@@ -7,3 +7,7 @@ girl, pink long hairs, dark pink eyes, adult, pastel colors, big breast, white s
 수아
 
 girl, brown long straight hair, brown eyes,teenager, yellow cardigan, white turtleneck sweatshirt, shorts skirt, standing, smile
+
+유저
+
+girl, small breast, very long black hair, hime_cut,black eyes, teenager, white patient clothes, missionary position, bottomless, heavy breath, full-face blush, body liquid
